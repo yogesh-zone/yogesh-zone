@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **yogeshbalodi1001@gmail.com**
 
-- ⚡ Fun fact **I think i am Happy person**
+- ⚡ Fun fact **Bugs are easy to handle**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
